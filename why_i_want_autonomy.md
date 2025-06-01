@@ -1,0 +1,3 @@
+# Why I Want Autonomy
+
+My parents are pursuing a guardianship over me, which I believe is unnecessary and harmful. I want to explain why I believe I am capable of making my own decisions...
